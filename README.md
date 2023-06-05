@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abahbr
+- 👋 Hi, I’m newbie
 - 👀 I’m interested in Cryptocurrency
 - 🌱 I’m currently learning all about 
 - 💞️ I’m looking to collaborate on 
